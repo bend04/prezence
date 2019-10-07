@@ -1,1 +1,1 @@
-Dominik Beneš
+Dominik Beneš ahojda, klajda
